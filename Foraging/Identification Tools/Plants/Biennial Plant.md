@@ -1,0 +1,1 @@
+Plant that requires two seasons to complete growing cycle. Focuses on vegetative growth in the first season and reproductive growth in the second season.

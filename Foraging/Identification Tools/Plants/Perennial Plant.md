@@ -1,0 +1,1 @@
+Grows back year after year. Characterized by woody growth or large root structures that store energy.

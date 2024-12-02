@@ -1,0 +1,1 @@
+Meadows and fields made up of low growing, scrubby plants and grasses.

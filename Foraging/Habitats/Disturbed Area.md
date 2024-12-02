@@ -1,0 +1,1 @@
+Blank slates where an existing ecosystem was recently destroyed, either by natural processes or human intervention. Best places to look for early succession plants.
