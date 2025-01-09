@@ -8,4 +8,14 @@ Roots and stems are the hardest to forage sustainably. Requires killing the plan
 ## Exception to all of the rules above:
 Invasive, non-native species. Harvest to your heart's content!
 
-[[Haeri's Page]]
+# Honorable Harvest
+
+When foraging, it's important to be ethical in your harvest and respect it and the environment around you. 
+
+**Some key rules:**
+- Familiarize yourself with the plants and animals around you
+- Reciprocate what you take from the plants by protecting and propagating their populations
+- Using all that you harvest
+- Sharing your harvest with others
+- Never taking the first plant of a species you see, so you can be sure you aren't taking the last in that area
+
